@@ -1,2 +1,2 @@
 # special-journey
-my 14 yo. designs 
+my 14 yo. designs & some recent drawings
